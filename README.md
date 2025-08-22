@@ -25,5 +25,5 @@
 
 ### 📫 Conecte-se comigo
 - [LinkedIn](link)  
-- [Portfólio/Design](link) *(se tiver Dribbble, Behance ou site pessoal)*  
+- [Portfólio/Design](link) 
 - [Instagram Profissional](link)  
